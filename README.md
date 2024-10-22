@@ -1,0 +1,1 @@
+"References of references! Hasn't anyone explored this kid's imagination in person!? He's a bloody genius why are you wasting my time in my office and not directly interacting with him instead of hiding behind high school gossip circles. He's on his way out of anyone's reach soon!" Miss Nobody Special sobbed in exhausted rage.
