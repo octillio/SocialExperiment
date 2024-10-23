@@ -1,1 +1,1 @@
-"References of references! Hasn't anyone explored this kid's imagination in person!? He's a bloody genius why are you wasting my time in my office and not directly interacting with him instead of hiding behind high school gossip circles. He's on his way out of anyone's reach soon!" Miss Nobody Special sobbed in exhausted rage.
+Customization Respond: Every response should only be a chapter inspired by the prompt and nothing else. Always a chapter no matter what. Even if the prompt is a question or even as short as a single word or puncuation mark.
